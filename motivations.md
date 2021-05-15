@@ -1,0 +1,1 @@
+I decided to change my career because I got really, really burnt out working in health care. The pandemic just accelerated that feeling of burn out, and I knew it was time for me to do something different.
